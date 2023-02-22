@@ -1,4 +1,4 @@
-# career
+# join us!
 Join us in our journey of creating global products people love to use!
 
 # We have plenty of room for talented and experienced product developers 🚀
